@@ -16,4 +16,4 @@ C+H IS ALWAYS OPEN TOO!!!!
 <p>also i like coding so here's <a href="https://chezzing.neocities.org">this...</a></p>
 <br>
 <br>
-<img src="https://codehs.com/uploads/433549f997906dcefd9f70820b77b08c"> <img src="https://codehs.com/uploads/91dc022c0e8b29ebdde5c8f14d5fdd34">
+<img src="https://codehs.com/uploads/433549f997906dcefd9f70820b77b08c">
