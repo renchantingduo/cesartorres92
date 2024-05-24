@@ -1,5 +1,5 @@
 # jamesdean
-<img src="https://codehs.com/uploads/a83ce60dc31d23f4953f9fc73334ac8c" width="300" height="294">
+<img src="https://codehs.com/uploads/a83ce60dc31d23f4953f9fc73334ac8c" width="400" height="441">
 <br>
 Call me Bow or my display name!
 I go by any pronouns but i prefer not using they on me ^_^
