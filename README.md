@@ -10,8 +10,7 @@ I love love love Minecraft..and a LOT of other stuff!!
 If u see anything on my rentry (periodictablenya) that u know PLEASE INT!!1
 I'm the world's biggest james dean fan (trust) :3 
 also i REALLY like smash mouth too!!
-and smallishbeans...ALSO #1 SHADOWCADET #8YEARSSTRONG
-<br>
+and smallishbeans...ALSO SHADOWCADET 4 8 YRS! <3
 I LOVEEEEE ALL MY FRIENDS <3 ALWAYS INT WITH ME!!
 C+H IS ALWAYS OPEN TOO!!!!
 <br>
