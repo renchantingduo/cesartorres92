@@ -7,10 +7,10 @@ Call me by my current skin plz!
 I go by any pronouns but i prefer not using they on me ^_^
 <br>
 I love love love Minecraft..and a LOT of other stuff!!
-If u see anything on my rentry (periodictablynya) that u know PLEASE INT!!1
+If u see anything on my rentry (periodictablenya) that u know PLEASE INT!!1
 I'm the world's biggest james dean fan (trust) :3 
 also i REALLY like smash mouth too!!
-and smallishbeans...
+and smallishbeans...ALSO #1 SHADOWCADET #8YEARSSTRONG
 <br>
 I LOVEEEEE ALL MY FRIENDS <3 ALWAYS INT WITH ME!!
 C+H IS ALWAYS OPEN TOO!!!!
