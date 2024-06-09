@@ -8,9 +8,8 @@ I go by any pronouns but i prefer not using they on me ^_^
 <br>
 I love love love Minecraft..and a LOT of other stuff!!
 If u see anything on my rentry (periodictablenya) that u know PLEASE INT!!1
-I'm the world's biggest james dean fan (trust) :3 
-also i REALLY like smash mouth too!!
-and smallishbeans...ALSO SHADOWCADET 4 8 YRS! <3
+SHADOWCADET 4 8 YRS! <3 MY BIGGESSTTTTT INTRESTS RN ARE **SMALLISHBEANS**,
+JAMES DEAN!!, SMASH MOUTH!!!!!!! PLEASEEEEEEE IM BEGGIN YOU TALK TO ME ABOUT THESE!!!
 I LOVEEEEE ALL MY FRIENDS <3 ALWAYS INT WITH ME!!
 C+H IS ALWAYS OPEN TOO!!!!
 <br>
